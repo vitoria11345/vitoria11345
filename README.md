@@ -1,5 +1,5 @@
 - 👋 eu  sou @vitoria1134
-- 👀 eu estou interessada in  cada  dia mais melhorar,me aprimorar,entender e estudar
+- 👀 eu estou interessada em  cada  dia mais melhorar,me aprimorar,entender e estudar
 - 🌱 eu estou aprendendo varias tecnologias ,ensinamentos,linguas diferentes e interessantes
 -Fazer tudo que tiver ao meu alcance
 -Sou capricornia ,nasci no ano novo ,gosto de melancia,maça,lasanha
